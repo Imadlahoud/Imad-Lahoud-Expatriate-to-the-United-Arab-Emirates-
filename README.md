@@ -1,4 +1,4 @@
-# Imad-Lahoud : "Expatriate to the United Arab Emirates
+# Imad-Lahoud : "Expatriate to the United Arab Emirates"
 
 Imad Lahoud has been an expatriate for almost 10 years in Abu Dhabi where he is the technical director of the UAE group Medad. He reveals to us all the attractions of his host country.
 
